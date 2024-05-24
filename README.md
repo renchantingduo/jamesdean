@@ -14,3 +14,6 @@ I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
 <br>
 <p>also i like coding so here's <a href="https://chezzing.neocities.org">this...</a></p>
+<br>
+<br>
+<img src="https://codehs.com/uploads/433549f997906dcefd9f70820b77b08c" height=250 width="50" class="center">
