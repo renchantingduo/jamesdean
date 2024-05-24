@@ -11,4 +11,4 @@ I'm the world's biggest james dean fan (trust) :3
 I LOVEEEEE ALL MY FRIENDS <3 ALWAYS INT WITH ME!!
 C+H IS ALWAYS OPEN TOO!!!!
 <br>
-<p>also i like coding so heres<a href="[https://rentry.co/thisisnottherealme/](https://chezzing.neocities.org/)">this...</a>!</p>
+<p>also i like coding so heres<a href="https://chezzing.neocities.org">this...</a></p>
