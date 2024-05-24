@@ -1,2 +1,2 @@
 # jamesdean
-<img src="[.com/uploads/b478bbee4ae319d979b7021c079b0b8b)](https://codehs.com/uploads/b478bbee4ae319d979b7021c079b0b8b)](https://codehs.com/uploads/b478bbee4ae319d979b7021c079b0b8b)">
+<img src="https://codehs.com/uploads/a83ce60dc31d23f4953f9fc73334ac8c">
